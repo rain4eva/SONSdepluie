@@ -5,5 +5,3 @@ If you want someone that is actually competent check out [Anzu](https://anzuftnw
 
 ©Copyright 2019
 All Rights Reserved 
-
-SONS de pluie.
